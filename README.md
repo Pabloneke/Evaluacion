@@ -1,8 +1,1 @@
-# Evaluacion
-ola
-
-ola profe no me baje la nota ;C
-
-hola benja, leeme
-
-hola paulo t leo
+carlitos
